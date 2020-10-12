@@ -6,7 +6,7 @@ categories: writing
 ---
 This is a blog for me to write in public. I write a lot, privately, but not at all in public.
 
-For whatever reason, I have no problem putting some rough and sometimes embarrassing [demos on Bandcamp](https://secrethairs.bandcamp.com/) or making a [mediocre web app and putting it online](https://highlighter.online/editor). But I can't seem to make myself put my writing online. 
+For whatever reason, I have no problem putting some rough and sometimes embarrassing [demos on Bandcamp](https://secrethairs.bandcamp.com/) or making an [unfinished web app and putting it online](https://highlighter.online/editor). But I can't seem to make myself put my writing online. 
 
 Here are some excuses why I don't share my writing: 
 - Most of my writing isn't good enough to share. 
