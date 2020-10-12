@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "You Are Reading Sam's Blog"
+title: "You Are Reading My Blog"
 date: 2020-10-12 12:01:11 -0500
 categories: writing
 ---
@@ -13,8 +13,8 @@ Here are some excuses why I don't share my writing:
 - My opinions sometimes change. 
 - I'm dumb and wrong sometimes. 
 - My blog writing tends to be too earnest for my taste, but, here I am, being earnest.
-- I don't want people to know who I really am.
 - I don't share my writing because I don't want my writing, myself, or my ideas to be rejected. (I hide it and never share it, not even with my dearest friends or family.)
+- I don't want people to know who I really am.
 
 So I'm gonna share some writing here and it might be good or bad. I might share some short fiction, or maybe some essays about history, literature, music, politics, race, gender, religion, business, tech, or writing itself. I just need an outlet to explore some ideas and become more serious with my writing. 
 

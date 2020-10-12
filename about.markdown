@@ -7,7 +7,7 @@ This is a blog by Sam McAlilly. From now on, within this webpage and throughout 
 
 I'm from Mississippi and currently live in Birmingham, Alabama. I do stuff with computers (code) for my day job. I like to write fiction and essays in my free time. 
 
-[Read about my intentions with this blog and why I wanted to start it.](/writing/2020/10/12/you-are-reading-sams-blog.html)
+[Read about my intentions with this blog and why I wanted to start it.](/writing/2020/10/12/you-are-reading-my-blog.html)
 
 ## Writing
 - I'm revising a novella which I've worked on over the past five years. 
