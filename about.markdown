@@ -3,7 +3,7 @@ layout: page
 title: About
 permalink: /about/
 ---
-This is the blog for Sam McAlilly. From now on, within this webpage and throughout the rest of the site which you're reading, I (Sam) will not refer to myself in third person. Libertating!
+This is a blog by Sam McAlilly. From now on, within this webpage and throughout the rest of the site which you're reading, I (Sam) will not refer to myself in third person. Libertating!
 
 I'm from Mississippi and currently live in Birmingham, Alabama. I do stuff with computers (code) for my day job. I like to write fiction and essays in my free time. 
 

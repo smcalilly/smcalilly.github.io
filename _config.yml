@@ -21,9 +21,7 @@
 title: writing by sam mcalilly
 email: smcalilly@gmail.com
 description: >- # this means to ignore newlines until "baseurl:"
-  Some thoughts written by Sam McAlilly. I'll meander through whatever I want --
-  literature, history, culture, music, politics, sociology, etc.
-  Maybe have links to good reads. Maybe have a portfolio page.
+  Writing to make sense or not.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "https://smcalilly.github.io" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: greenie_bean
