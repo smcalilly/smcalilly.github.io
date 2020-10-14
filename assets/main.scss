@@ -1,0 +1,32 @@
+---
+---
+@import "minima";
+
+// change some typography defaults
+a {
+    color: #9c67ab;
+}
+
+a.visited {
+    color: #56cc75;
+}
+
+body {
+    font: 400 18px/1.7 "Palatino Linotype", "Book Antiqua", Palatino, serif;
+}
+
+// hide some theme defaults
+.footer-heading, .social-media-list, .reversefootnote, .footer-col-3 {
+    display: none;
+}
+
+// tweak some layout stuff
+
+
+.footnotes {
+    margin-top: 10px;
+}
+
+.wrapper {
+    max-width: calc(750px - (30px * 2))
+}
