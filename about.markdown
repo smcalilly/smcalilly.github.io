@@ -2,6 +2,7 @@
 layout: page
 title: About
 permalink: /about/
+published: false
 ---
 This is a blog by Sam McAlilly. From now on, within this webpage and throughout the rest of the site which you're reading, I (Sam) will not refer to myself in third person. Libertating!
 
