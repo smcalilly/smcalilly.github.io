@@ -16,7 +16,7 @@ Here are some excuses why I don't share my writing:
 - I don't share my writing because I don't want my writing, myself, or my ideas to be rejected. (I hide it and never share it, not even with my dearest friends or family.)
 - I don't want people to know who I really am.
 
-So I'm gonna share some writing here and it might be good or bad. I might share some short fiction, or maybe some essays about literature, music, history, politics, race, gender, sexuality, religion, business, tech, or writing itself. I just need an outlet to explore some ideas and become more serious with my writing. Who really knows? I sure don't.
+So I'm gonna share some writing here and it might be good or bad. I might share some short fiction, or maybe some essays about literature, music, history, politics, race, gender, sexuality, religion, business, tech, or writing itself. Who really knows? I sure don't. I just need an outlet to explore some ideas and become more serious with my writing. 
 
 I used to share some writing on various social media sites (if you can call it that), but I had to get off of social media. I logged off, forgot my passwords, and deleted all the apps. Like everybody in 2020, regardless of the tuning of your echo chamber, my feeds were very negative and often made me angry or sad. I've realized about myself that I'm prone to be affected by the prevailing mood of other people in a physical space, and now I understand that a space can exist digitally, too. Basically I'm just saying that social media puts me in a bad mood. I'm also addicted to it and don't like that.
 
