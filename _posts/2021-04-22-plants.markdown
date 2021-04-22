@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "plants spring 2021"
+title: "plants"
 date: 2021-04-22 12:01:11 -0500
 categories: writing plants
 ---
