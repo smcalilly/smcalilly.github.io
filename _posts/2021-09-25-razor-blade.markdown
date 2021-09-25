@@ -17,7 +17,7 @@ We went into the Cheney’s Pharmacy, but no razor blade. She bought some cigare
 
 Mom said we’ll find one in Jackson. We stopped at the Wendy’s drive-thru before we got on the highway. We ordered three Junior Bacon Cheeseburgers, three small fries, three medium Coca-Colas, and a razor blade from the kid’s meal. The razor blade was plastic.
 
-We drove down the highway and ate our food. I hoped Mom forgot about the razor blade. She said stop at that McDonald’s. We ordered some ice cream and asked if they had a razor blade. They said their ice cream machine was broken and they had no razor blades.
+We drove down the highway and ate our food. I hoped Mom forgot about the razor blade. She said stop at that McDonald’s. We ordered some ice cream and she asked if they had a razor blade. They said their ice cream machine was broken and they had no razor blades.
 
 We stopped at Dollar Tree, Family Dollar, Dollar General, no razor blade. Piggly Wiggly, Big Star, Cash Saver, no razor blade.
 
