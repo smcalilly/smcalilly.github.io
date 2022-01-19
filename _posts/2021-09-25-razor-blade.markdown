@@ -13,7 +13,7 @@ We stopped at the Walgreens on our way out of town. They were out of men’s raz
 
 We went to CVS. No men or women’s razor blades, either.
 
-We went into the Cheney’s Pharmacy, but no razor blade. She bought some cigarettes.
+We hurried into the Cheney’s Pharmacy, but no razor blade. She bought some cigarettes.
 
 Mom said we’ll find one in Jackson. We stopped at the Wendy’s drive-thru before we got on the highway. We ordered three Junior Bacon Cheeseburgers, three small fries, three medium Coca-Colas, and a razor blade from the kid’s meal. The razor blade was plastic.
 
