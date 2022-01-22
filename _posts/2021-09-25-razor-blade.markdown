@@ -5,7 +5,7 @@ date: 2021-09-25 12:01:11 -0500
 categories: writing fiction
 ---
 
-My parents took me to my cousin’s wedding. I wore my brother's oversized suit for it. I had my first facial hairs and I was excited.
+My parents took me to my cousin’s wedding. I wore my brother's oversized suit for it. The sleeves came down all the way to the end of my thumb. I had my first facial hairs and I was excited.
 
 We got in the car and Mom saw my whiskers in the rearview mirror. She said we gotta get you a razor blade before we go in public. Dad said we could use his pocket knife and Mom said no your dull blade won’t cut it.
 
