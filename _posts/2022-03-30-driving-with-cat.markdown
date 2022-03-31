@@ -9,7 +9,7 @@ What is the responsible way to drive with a cat? Should the cat even travel, or 
 
 Why can’t the cat, who is so brilliant at finding comfort anywhere, find comfort in a moving vehicle? Maybe the cat is screaming because she can see into the future, her death in a car crash?
 
-Should the cat be allowed to roam free and find the best spot herself? What happens in a wreck? Hopefully she’ll be in my lap and I can cradle her from the air bag. But what if I’m not quick enough? Crashes happen too fast. What if I need to keep my hands on the steering wheel?
+Should the cat be allowed to roam free and find the best spot herself? What happens in a wreck? Hopefully she’ll be in my lap and I can cradle her from the air bag. That's a bad idea, it would crush her. And what if I’m not quick enough? Crashes happen too fast. What if I need to keep my hands on the steering wheel?
 
 I’m so glad she doesn’t take her anger out on me. She likes the air conditioner, so I keep her there. Battle to keep her from going into my feet. Her claws grip into my skin when we stop hard. Please don’t attack me, our lives depend on it.
 
