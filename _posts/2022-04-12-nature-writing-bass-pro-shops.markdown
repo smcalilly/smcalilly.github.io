@@ -29,5 +29,4 @@ I wanna buy one too cause they got it pulled up next to the pools of water under
 They brought alligators into this motherfucking building and they live here!  
 Trapped in a glass cage  
 Carted them in with tanks and dropped them into the water  
-They sit under the heat lamps and we watch them swim around  
-Simulacrum or whatever this is  
+They sit under the heat lamps and we watch one swim around   
