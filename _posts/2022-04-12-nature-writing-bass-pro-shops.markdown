@@ -7,7 +7,6 @@ categories: writing
 
 Somebody said, “Redneck Disney World”  
 A log cabin tacked onto the glass pyramid like a front porch  
-On the lawn grows Deodar Cedar trees that aren’t native here  
 We tourists hurrying in to witness the flagship mega store  
 I guess this is another poem about "white culture"  
 My people? I guess  
