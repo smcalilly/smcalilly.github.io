@@ -12,10 +12,10 @@ We tourists hurrying in to witness the flagship mega store
 I guess this is another poem about "white culture"  
 My people? I guess  
 We buy Brands to wear across our chest, in society and sometimes in the woods  
-We wear these clothes outside and dream about with our hands killing a deer skin a fish a country boy can survive inside the Memphis Pyramid  
+We wear these clothes outside and dream about with our hands killing a deer skinning a fish a country boy can survive inside the Memphis Pyramid  
 American flags and camouflage printed on Crocs  
 Blue pilled skizzed out coffee bags with an AR-15 logo  
-Neon signs for the Sunglasses Hut, neon signs for the Ladies Apparel  
+Neon signs for the Ladies Apparel, Neon signs for the Sunglasses Hut  
 I don’t know what this smells like. Various perfumes mixed together with wet dog  
 Taxidermied ducks dangling in the air with monofilament string, stuck in flight  
 Fishing boats for sale floating in the concrete swamp water. I want one  
