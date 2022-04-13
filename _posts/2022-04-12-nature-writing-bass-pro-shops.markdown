@@ -11,13 +11,13 @@ On the lawn grows Deodar Cedar trees that aren’t native here
 We tourists hurrying in to witness the flagship mega store  
 I guess this is another poem about "white culture"  
 My people? I guess  
-We buy Brands to wear across our chest, mostly in social situations, sometimes in the woods  
+We buy Brands to wear across our chest, in society and sometimes in the woods  
 We wear these clothes outside and dream about with our hands killing a deer skin a fish a country boy can survive inside the Memphis Pyramid  
 American flags and camouflage printed on Crocs  
 Blue pilled skizzed out coffee bags with an AR-15 logo  
 Neon signs for the Sunglasses Hut, neon signs for the Ladies Apparel  
 I don’t know what this smells like. Various perfumes mixed together with wet dog  
-Taxidermied ducks dangling in the air, stuck in flight, affixed with monofilament string  
+Taxidermied ducks dangling in the air with monofilament string, stuck in flight  
 Fishing boats for sale floating in the concrete swamp water. I want one  
 Fake plastic cypress trees with Spanish moss draped from the limbs  
 Largemouth bass swimming around in the pool  
