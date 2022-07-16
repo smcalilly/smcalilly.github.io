@@ -13,7 +13,7 @@ My people? I guess
 We buy Brands to wear across our chest, in society and sometimes in the woods  
 We wear these clothes outside and dream about with our hands killing a deer skinning a fish a country boy can survive inside the Memphis Pyramid  
 American flags and camouflage printed on Crocs  
-Blue pilled skizzed out coffee bags with an AR-15 logo  
+Blue pill skizzed out coffee bags with an AR-15 logo  
 Neon signs for the Ladies Apparel, neon signs for the Sunglasses Hut  
 I don’t know what this smells like. Various perfumes mixed together with wet dog  
 Taxidermied ducks dangling in the air from monofilament string, stuck in flight  
