@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Buying flowers that don’t even grow right now because today is the day of forced romance out of all the other days, when you could pick some daffodils on the side of the road"
-date: 2023-02-15 12:01:11 -0500
+date: 2023-02-14 12:01:11 -0500
 categories: writing
 ---
 
