@@ -3,6 +3,7 @@ layout: post
 title: "You Are Reading My Blog"
 date: 2020-10-12 12:01:11 -0500
 categories: writing
+published: false
 ---
 This is a blog for me to write in public. For some reason, I have no problem putting some rough and often embarrassing demos on Bandcamp or making an unfinished web app and putting it online. But I can't seem to make myself put my writing online. 
 
