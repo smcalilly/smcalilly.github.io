@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Buying flowers that don’t even grow right now because today is the day of forced romance out of all the other days for romance, when you could pick some daffodils on the side of the road"
+title: "Buying flowers that don’t even grow right now because today is the day of forced romance out of all the other days, when you could pick some daffodils on the side of the road"
 date: 2023-02-15 12:01:11 -0500
 categories: writing
 ---
@@ -9,4 +9,4 @@ I walked into Publix to buy some lunch stuff and the pink heart-shaped balloons 
 
 A boy at the meat section and he had a heart-shaped red balloon floating above him and a plastic wrapped bouquet poking from his basket. Oh fuck I should buy us some red meat to eat, that seems romantic, cook my woman a steak. Oh wait she’s vegetarian.
 
-Buying flowers that don’t even grow right now because today is the day of forced romance out of all the other days for romance, when you could pick some daffodils on the side of the road.
+Buying flowers that don’t even grow right now because today is the day of forced romance out of all the other days, when you could pick some daffodils on the side of the road.
