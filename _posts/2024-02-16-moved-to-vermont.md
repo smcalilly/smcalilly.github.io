@@ -11,7 +11,7 @@ list of events happening around bham that i’m missing bc we moved:
 - 3RA1N1AC
 - neil young and crazy horse
 - seeing haylen play bass in hotline tnt, we started our first band together in like 6th grade
-- eating at rougaroux and saw’s bbq and the taco truck by the gas station and red pearl and any restaurant owned by frank stitt and hot n hot and the thai place that burned down and the meat & 3 that closed and zaza and slice pizza and el barrio and bamboo on second and shu shop even though they were rude when hal was barefoot and put on his slippers and they refused to serve us
+- eating at rougaroux and saw’s bbq and the taco truck by the gas station and red pearl and any restaurant owned by frank stitt and hot n hot and the thai place that burned down and the meat & 3 that closed and the essential and zaza and slice pizza and el barrio and bamboo on second and shu shop even though they were rude when hal was barefoot and put on his slippers and they refused to serve us
 - i regret never seeing joe minter’s “african village in america"
 - our old landlord is selling the house despite us asking to buy and them stringing us along like they might sell it to us, for the 5 years we lived there. according to zillow, the amount of money we paid in rent is 3/4 the cost they paid to buy the house.
 
