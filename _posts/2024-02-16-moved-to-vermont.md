@@ -21,7 +21,7 @@ PLEASE HELP FIX MY FRIEND ALONE
 
 and we will conquer the world. maybe we can get up to something else too, i don’t know, i just need to be with the dear friends that i love and love me despite my flaws. if you would like to be my friend, you can email me at smcalilly@gmail.com. i need in-person friends but i will welcome internet friends, too. though heads up i have flaws.
 
-have this urge to run into a church and surrender my body on the sanctuary floor as a sinner who needs to be punished. there is a void in my spirit, that’s for sure. 100% failed on the first day of lent.
+have this urge to run into a church and surrender my body on the sanctuary floor as a sinner who needs to be punished. whip me with the word. there is a void in my spirit, that’s for sure. 100% failed on the first day of lent.
 
 vermont local food. that helps. creamline milk, my god, have you had that? divine. we found a delicious cream cheese that doesn’t have a label. i will enjoy the summer here. if we become friends then you should visit and come hike or fish or just hang out in the mountains. i’m gonna have a 750 sqft vegetable garden.
 
