@@ -15,7 +15,7 @@ list of events happening around bham that i’m missing bc we moved:
 - daffodils blooming by february
 - seeing the redeye bass swimming along the shoals in the little cahaba and not being able to catch one, so i go look at all of the rare plants around in the glades
 - i regret never seeing joe minter’s “african village in america"
-- our missing cat big daddy
+- seeing our missing cat big daddy
 - our old landlord is selling the house despite us asking to buy it and them stringing us along like they might sell it to us, for the 5 years we lived there. according to zillow, the amount of money we paid in rent is 3/4 the cost they paid to buy the house.
 
 i’m having some weird mental stuff. among various problems, i don’t have any friends close by. (i moved to vermont because zoe got a job here. i love zoe.) i didn’t have any friends left in birmingham so it’s not a huge change. but i’m desperately missing friends nearby now. i want to start a group message with my friends scattered everywhere called:
