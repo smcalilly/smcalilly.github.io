@@ -8,7 +8,7 @@ categories: writing
 i moved to vermont. wish i could climb into the clouds and dig a hole open for me to sit in the sun.
 
 list of events happening around bham that i’m missing bc we moved:
-- brainiac
+- 3RA1N1AC
 - neil young and crazy horse
 - seeing haylen play bass in hotline tnt, we started our first band together in like 6th grade
 - eating at rougaroux and saw’s bbq and the taco truck by the gas station and red pearl and any restaurant owned by frank stitt and hot n hot and the thai place that burned down and the meat & 3 that closed and zaza and slice pizza and el barrio and bamboo on second and shu shop even though they were rude when hal was barefoot and put on his slippers and they refused to serve us
