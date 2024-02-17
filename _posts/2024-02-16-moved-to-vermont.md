@@ -7,7 +7,7 @@ categories: writing
 
 i moved to vermont. wish i could climb into the clouds and dig a hole open to sit in the sun.
 
-list of events happening around bham that i’m missing bc we moved:
+list of events happening around birmingham that i’m missing bc we moved:
 - 3RA1N1AC
 - neil young and crazy horse
 - seeing haylen play bass in hotline tnt, we started our first band together in like 6th grade
