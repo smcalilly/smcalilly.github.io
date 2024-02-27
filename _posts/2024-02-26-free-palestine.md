@@ -2,7 +2,7 @@
 layout: post
 title:  "Free Palestine"
 date:   2024-02-26 11:31:18 -0500
-categories: jekyll update
+categories: writing
 published: true
 ---
 
