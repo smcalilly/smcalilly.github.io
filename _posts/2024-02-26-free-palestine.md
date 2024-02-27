@@ -3,7 +3,7 @@ layout: post
 title:  "Free Palestine"
 date:   2024-02-26 11:31:18 -0500
 categories: writing
-published: true
+published: false
 ---
 
 Aaron Bushnell self-immolated in protest to the ongoing genocide of the Palestinian people. His words:
