@@ -9,7 +9,7 @@ i have a billion year old rock sitting on my table
 and i once met a bear who was my age
 the bear carrying the rock
 i had the table
-flat maroon rock the size of a dinner plate
+flat maroon stone the size of a dinner plate
 it has waves like it was the bottom of the ocean floor
 because once it was the bottom of a green ocean floor
 and the sediment got all wavey under the water
