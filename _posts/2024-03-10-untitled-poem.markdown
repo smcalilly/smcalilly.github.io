@@ -12,7 +12,7 @@ flat maroon stone the size of a dinner plate
 it has waves like it was the bottom of the ocean floor  
 because once it was the bottom of a green ocean floor  
 and the sediment got all wavey under the water  
-then the water left the basin and the bottom exposed  
+then the water left and the bottom exposed  
 to air became a maroon rock  
 a billion years later  
 the rock is on a mountain where  
