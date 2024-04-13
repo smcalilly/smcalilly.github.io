@@ -23,7 +23,7 @@ Music writer Matthew Perpetua [tweeted](https://twitter.com/perpetua/status/1778
 
 > i hear it as a two hour album with motifs that come and go throughout the entire 2 hours, like classical music. your break down is definitely "sections" but it sounds like a unified work to me
 
-Then I went and read [his blog post about this album](http://www.fluxblog.org/2024/04/someone-to-believe-in/) and I liked what he said about it and how he wrote it. I thought his idea of it being a discography was interesting. It would fit the girl pop star persona, and there's kind of a Bowie-like evolution. Maybe that's part of what's going on, but it doesn't explain everything. No problem, we are both writing our own interpretations of the art. We are sharing what we hear, subjectively with our life experiences and history of music listening.
+Then I went and read [his blog post about this album](http://www.fluxblog.org/2024/04/someone-to-believe-in/) and I liked what he said about it and how he wrote it. I thought his idea of it being a discography was interesting. This would fit the girl pop star persona, and there's kind of a Bowie-like evolution. Maybe that's part of what's going on, but it doesn't explain everything. No problem, we are both writing our own interpretations of the art, sharing what we hear, subjectively with our life experiences and history of music listening.
 
 I got a Twitter notification that Matthew Perpetua responded to my opinion:
 
@@ -31,7 +31,7 @@ I got a Twitter notification that Matthew Perpetua responded to my opinion:
 
 He deleted this tweet less than a minute after he posted it. This provoked my defense mechanism. I'm on a lifelong journey of learning how to disagree with people in a reasonable way. My mother wrote in a Christmas card that I was 2 years old and would argue with anything.
 
-"Find that like 30% as interesting conceptually" like ideas have percentages of interestingness. I wasn't going to let a popular music writer get away with deleting a tweet like that. It felt to me like a personal attack, and I responded with a screenshot of his deleted tweet and [said](https://twitter.com/greenie_bean/status/1778800248002888049):
+"Find that like 30% as interesting conceptually" like ideas have percentages of interestingness. I wasn't going to let a well regarded music writer get away with deleting a tweet like that. It felt to me like a personal attack, and I responded with a screenshot of his deleted tweet and [said](https://twitter.com/greenie_bean/status/1778800248002888049):
 
 > lol i respect this writer who deleted this tweet in response to me, but we shouldn't be applying music industry ideas like a "single" to an artist who does everything in opposition to the music industry. i find that like 30% as interesting, conceptually
 
