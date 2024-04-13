@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Diamond Jubilee by Cindy Lee"
-date: 2024-04-13 12:01:11 -0500
+date: 2024-04-12 12:01:11 -0500
 categories: writing
 ---
 
