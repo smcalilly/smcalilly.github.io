@@ -35,7 +35,7 @@ He deleted this tweet less than a minute after he posted it. This provoked my de
 
 > lol i respect this writer who deleted this tweet in response to me, but we shouldn't be applying music industry ideas like a "single" to an artist who does everything in opposition to the music industry. i find that like 30% as interesting, conceptually
 
-With that last bit I reused his words, because I found it an insulting thing that didn't engage with my opinion, so I gave it back to him, because that's one of my flaws, just like anybody else, giving back what it felt like whether my feeling is right or wrong. Weird that I'm sharing this but it's a narrative frame for music writing criticism. He responded:
+With that last bit I reused his words, because I found it an insulting thing that didn't engage with my opinion, so I gave it back to him, because that's one of my flaws, just like anybody else, giving back what it felt like whether my feeling is right or wrong. I know it's weird that I'm sharing this but it's a narrative frame for music writing criticism, and I'm trying to write out my conflicts with people so I can learn about myself and stop arguing with people. He responded:
 
 > I think it's weird that you'd think someone who made a record that sounds like this would not have obsessive interest in other artists' bodies of work, like that just wouldn't be plausible at all
 
