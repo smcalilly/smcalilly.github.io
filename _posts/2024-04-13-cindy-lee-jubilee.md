@@ -11,11 +11,11 @@ Music writer Matthew Perpetua [tweeted](https://twitter.com/perpetua/status/1778
 
 > I've mentioned I hear Cindy Lee's *Diamond Jubilee* as a collected discography compilation, I think it breaks down neatly like this: 
 > 
-> 1-2 debut single 
-> 3-6 EP 
-> 7-16 first album 
-> 17-26 second album 
-> 27-32 EP of second album outtakes 
+> 1-2 debut single  
+> 3-6 EP  
+> 7-16 first album  
+> 17-26 second album  
+> 27-32 EP of second album outtakes  
 > 
 > the second album is the masterpiece
 
@@ -35,7 +35,7 @@ He said, "find that like 30% as interesting conceptually" like ideas have percen
 
 > lol i respect this writer who deleted this tweet in response to me, but we shouldn't be applying music industry ideas like a "single" to an artist who does everything in opposition to the music industry. i find that like 30% as interesting, conceptually
 
-With that last bit I reused his words, because I found that an insulting thing to say about somebody's opinion that contradicts your opinion, so I gave it back to him, because that's one of my flaws, just like anybody else, giving back what it felt like whether my feeling is right or wrong. It might be weird that I'm sharing this but it's a narrative frame for music writing criticism. I don't know why he deleted it. I tweet shit and delete it all of the time, though I'm a nobody with 137 Twitter followers to his 18k. I should've ignored him, but I felt punched down to and the fighter in me. He responded:
+With that last bit I reused his words, because I found it an insulting thing that didn't engage with my opinion, so I gave it back to him, because that's one of my flaws, just like anybody else, giving back what it felt like whether my feeling is right or wrong. Weird that I'm sharing this but it's a narrative frame for music writing criticism. He responded:
 
 > I think it's weird that you'd think someone who made a record that sounds like this would not have obsessive interest in other artists' bodies of work, like that just wouldn't be plausible at all
 
@@ -47,7 +47,7 @@ I never said anything like that. I hate to pull the credentials, but I must defe
 
 I said, "i don't think twitter is a good place for either of us to explain our ideas. i'm curious to read a blog post about what you're trying to say." And he responded, "that's the full extent of the idea right there, it's just a way of looking at it and maybe making it easier to digest" and I said I would write a blog post about my ideas.
 
-I disagree with thinking about *Diamond Jubilee* as a discography or piecing up this work of art so it is easier to digest, like a product from the music industry, where Cindy Lee never existed until [today when Pitchfork gave them a rave review](https://pitchfork.com/reviews/albums/cindy-lee-diamond-jubilee/). Yet Cindy Lee uses some of these ideas to make their art. They eschew the industry and still fuck around with what the industry created, which is 30% more interesting than my original idea, which makes it 130% more interesting than Perpetua's idea, which equals 1.3 if you move over the decimals, which means nothing to art. And also this isn't my idea, because I heard it in the artwork.
+I disagree with thinking about *Diamond Jubilee* as a discography or piecing up this work of art so it is easier to digest, like a product from the music industry, where Cindy Lee never existed until [today when Pitchfork gave them a rave review](https://pitchfork.com/reviews/albums/cindy-lee-diamond-jubilee/). Yet Cindy Lee uses some of these ideas to make their art. They eschew the industry and still play with what the industry created, which is 30% more interesting than my original idea, which makes it 130% more interesting than Perpetua's idea, which equals 1.3 if you move over the decimals, which means nothing to art. And also this isn't my idea, because I heard it in the artwork.
 
 Here is my art interpretation, which I believe is fan fiction. I mean, goddamn, every single piece of music that has ever been made in the past 500 years might have a note included in this album. That's an exaggeration, but if you listen to the entire 2 hour album, multiple times, like at least a 10 hour commitment, you will find a unified work with musical motifs/themes/rhythms/grooves/melodies that weave in and out throughout the entire piece of work.  It's like a melodic or rhythmic or poetic fingerprint. This is most obvious with the outro loop that appears prominently near the beginning with "All I Want Is You",  "Wild One",  "Flesh Blood" (with the speed up that might be one of the album's major shifts?), middle with "Realistik Heaven", and very end with "24/7 Heaven".  ("Dallas" sounds like Elvis btw.) My god, fuck!, this does not need to be separated. There is even an 18th century seeming choral thing with "Le Machiniste Fantome" bridging the gap into modernity (cannot think of where this comes from right now but it's deep in my choir boy self who learned to sing at a church).  These shifts that feel like different albums are the elements of storytelling and mood. And I haven't hardly listened to the lyrics, will probably get into that in a couple of years after I've heard all of the notes and silence.
 
