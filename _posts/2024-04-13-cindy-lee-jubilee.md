@@ -5,7 +5,7 @@ date: 2024-04-12 12:01:11 -0500
 categories: writing
 ---
 
-[Cindy Lee released a new 2 hour long album *Diamond Jubilee*](https://www.youtube.com/watch?v=_LJi5na897Y), unannounced like they normally release new albums. Interacts in my brain with all of the music I've heard from Cindy Lee, and the interviews I've read. I don't think I'll ever understand their work.
+[Cindy Lee released a new 2 hour long album *Diamond Jubilee*](https://www.youtube.com/watch?v=_LJi5na897Y). Interacts in my brain with all of the music I've heard from her, and the interviews I've read. I don't think I'll ever understand their work.
 
 Music writer Matthew Perpetua [tweeted](https://twitter.com/perpetua/status/1778768336618148190):
 
