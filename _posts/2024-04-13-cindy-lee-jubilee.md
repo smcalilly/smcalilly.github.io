@@ -23,7 +23,7 @@ Music writer Matthew Perpetua [tweeted](https://twitter.com/perpetua/status/1778
 
 > i hear it as a two hour album with motifs that come and go throughout the entire 2 hours, like classical music. your break down is definitely "sections" but it sounds like a unified work to me
 
-Then I went and read [his blog post about this album](http://www.fluxblog.org/2024/04/someone-to-believe-in/) and I liked what he said about it. I thought his idea of it being a discography was interesting. It's certainly plausible, as it would fit the girl pop star persona, and there's kind of a Bowie-like evolution. Maybe that's part of what's going on, but it doesn't explain everything. No problem, we are both writing our own interpretations of the art. We are sharing what we hear, subjectively with our life experiences and history of music listening.
+Then I went and read [his blog post about this album](http://www.fluxblog.org/2024/04/someone-to-believe-in/) and I liked what he said about it and how he wrote it. I thought his idea of it being a discography was interesting. It would fit the girl pop star persona, and there's kind of a Bowie-like evolution. Maybe that's part of what's going on, but it doesn't explain everything. No problem, we are both writing our own interpretations of the art. We are sharing what we hear, subjectively with our life experiences and history of music listening.
 
 I got a Twitter notification that Matthew Perpetua responded to my opinion:
 
