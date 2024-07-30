@@ -70,6 +70,7 @@ My cat Sylvia loves these bands, she always comes to listen whenever I put them 
 - brainiac
 - galaxie 500
 - the breeders
+- elliott smith
 - cleaners from venus
 - blaze foley
 - townes van zandt
