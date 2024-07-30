@@ -16,7 +16,7 @@ Just remembered when my neighbors spent like two months with contractors remodel
 
 The house's current owner decided to sell their vacation home once they started to remodel and then abandoned the project, ripping up all of the floors and completely demolishing the bathroom and pulling out a structural wall and letting the pipes burst and threw out the kitchen drawers and a metal roof panel is missing and backed a car into the garage door. I don't think they wanted to spend the amount of money it would take to get the place in order. So I spent a lot of time learning about how to get loans to finish a remodel and designing/dreaming about the space (I'm now a home design expert) and budgeting how much it cost. But I don't have enough money nor will they give a loan to me.
 
-Wish somebody would just give me a bunch of money with the promise that I would give it back to them, eventually, you can trust me, I will DIY the entire project, I got no choice if I live there because it needs a bathroom. Please! Give me the money!
+Wish somebody would just give me a bunch of money with the promise that I would give it back to them, eventually, you can trust me, I will DIY the entire project and subcontract anything to do with water, I got no choice if I live there because it needs a bathroom. Please! Give me the money! Email me at smcalilly@gmail.com.
 
 The house is like 7 miles from where the poet Robert Frost had his summer home. It's 3 miles from where the poet Ruth Stone had her summer home, and where her granddaughter hosts readings and writing workshops. They had it figured out living up there in the mountains.
 
@@ -48,11 +48,12 @@ I found a way to divide by zero: just make up the result, and then use that logi
 
 The word "enshittification" is such an awkward word, like some 7th grader came up with a new cuss word. It's describing something important but it's not the right word to describe the phenomenon. Anytime I come across the word, I shudder and don't want to read what the person has to say after that.
 
-My cat Sylvia loves these bands, she always comes to listen whenever i put them on:
+My cat Sylvia loves these bands, she always comes to listen whenever I put them on:
 - neil young
 - neil young and crazy horse
 - cindy lee
 - radio dept
+- shocking pinks
 - angel olsen
 - barbara lynn
 - harlem
@@ -63,6 +64,7 @@ My cat Sylvia loves these bands, she always comes to listen whenever i put them 
 - brian eno
 - bauhaus
 - wire
+- joy division
 - gang starr
 - brainiac
 - galaxie 500
