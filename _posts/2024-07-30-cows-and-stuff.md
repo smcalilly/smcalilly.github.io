@@ -1,0 +1,92 @@
+---
+layout: post
+title: "cows and stuff"
+date: 2024-07-30 12:01:11 -0500
+categories: writing
+---
+
+## cows
+Seems like a huge betrayal when a dairy farmer takes away the dairy cow's calf. The farmer either sells the calf or grows it to be eaten. You're taking care of that dairy cow and she gives you her child because she trusts you so much. I'm complicit in this action: the farmer kidnaps dairy cow's calf and slaughters it, then the farmer sits down at the dinner table to eat a steak which cooked on a grill so close to the barn that the dairy cow could smell it, and the next day the farmer goes out to the barn and pets the dairy cow on the nose, looking her in the eyes, saying "sweet girl" and milking her. I'm hiding in the woods near the barn and hurry out of the shadows to snag my portion of the cream and milk. Later I come back to buy some frozen ground beef.
+
+Seems like the only ethical milk/cheese/beef is to raise the calf and then slaughter it at a reasonable old age. So you'd end up with a circulation of cows up to the age of 15-20, meaning you would have 15-20 cows at a time, plus the original dairy cow mother. It would cost a lot of money just to have cow pets like that. Like having 15-20 dogs and the cows need a lot of space. And all of the manure. But you'd have 15-20 sources of meat in case of emergency.
+
+Eventually you would have a million cows. You'd be rich and would need to sell some, in which case the buyer might eat the cows. You can't get rich without letting somebody eat your cows.
+
+Just remembered when my neighbors spent like two months with contractors remodeling their house before they listed the house for sell, then somebody bought the house and undid a lot of the remodeling. Because I went down a remodeling rabbit hole where I didn't do anything except obsess about buying this 14 acres with an old country house in the middle of the Green Mountain National Forest in vermont. Next to a lot of trails and a 2 mile walk to a fishing lake. With an antique dairy barn, has a small brook running through it, southern exposure, half of it was in wetlands with a beaver pond. Most of the property borders National Forest land. It's on a dirt road, but the road is plowed regularly in the winter.
+
+The house's current owner decided to sell their vacation home once they started to remodel and then abandoned the project, ripping up all of the floors and completely demolishing the bathroom and pulling out a structural wall and letting the pipes burst and threw out the kitchen drawers and a metal roof panel is missing and backed a car into the garage door. I don't think they wanted to spend the amount of money it would take to get the place in order. So I spent a lot of time learning about how to get loans to finish a remodel and designing/dreaming about the space (I'm now a home design expert) and budgeting how much it cost. But I don't have enough money nor will they give a loan to me.
+
+Wish somebody would just give me a bunch of money with the promise that I would give it back to them, eventually, you can trust me, I will DIY the entire project, I got no choice if I live there because it needs a bathroom. Please! Give me the money!
+
+The house is like 7 miles from where the poet Robert Frost had his summer home. It's 3 miles from where the poet Ruth Stone had her summer home, and where her granddaughter hosts readings and writing workshops. They had it figured out living up there in the mountains.
+
+The house is in the town of Goshen, Vermont, population 162. Would've been uhhh kinda ridiculous to move out there but we would've been in a divine spot otherwise, especially if we could've made one or two friends out of the 162 friends available. And it's close enough to Ripton (where the Frost house is), and Ripton has like 576 people. They could use a catfish joint out there or something, maybe a bookstore.
+
+I would like to live there, surrounded by all of the trees like that, looking at a mountain all the time hearing that brook. The barn would've been a good spot to have writers come stay and work for a couple of weeks, like a fake little writing residency. I ain't go no money tho, and they'd be eating home grown beef from a recently slaughtered 15-20 year old cow alongside butter and cheese from the cow's mother and heirloom green beans.
+
+## green beans
+My family has an heirloom green bean that we've been growing since the end of the civil war. My ancestor was conscripted to fight in the war and he returned home to a place that was ravaged by Sherman's march. Food was hard to find, but they obtained a bag of field peas. A few green bean seeds were included in the bag. We've been growing them ever since.
+
+I don't know if this story is true but I continue the myth. My garden plot was flooded by a historic flood after Hurricane Beryl came all the way from the Gulf of Mexico up into Vermont. A 100 year flood or so (aka 1% chance of happening). It was a devastating flood for a lot of people. It took out all of the beets, greens, broccoli, cauliflower, squash, peppers, some tomatoes, and some herbs. But the family green beans survived.
+
+
+## bread and puppet show
+We saw the Bread and Puppet Theater perform "The Beginning after the End of Humanity Circus". How wonderful. So unique, creative, funny, sad, alive, just everything that makes art great, as close to perfection as we can touch.
+
+We learned about Joe Biden dropping out of the presidential race while watching the performance. Somebody came out with a big puppet head and said in a goofy puppet performance talking head voice, "Ladies and gentleman, I am the President of the United States, and I am dropping out of the race!" Everybody was like, "What??? No way!" and a guy next to us said, "It's true! I saw it on Twitter a little while ago."
+
+So we continued watching the performance with that news, which I didn't believe, and it didn't change my enjoyment of the show, except maybe make it more surreal.
+
+After the circus, they fed us bread with garlic aioli. Then they had a small pageant where they sang a couple of songs. Then the director, Peter Schumann, led us to the Museum of Anti-Modern Art. The crowd walked alongside the performers, all mixed in together, when I realized that I was walking next to the director, Peter Schumann. I awkwardly let him go ahead of me and I just followed behind looking at him, not often getting the chance to be so close to such genius. I could see the soles of his feed as he took each step, the way he walked as an old man with his graceful stride, wearing his sandals, with the dirt in his toe nails.
+
+The Museum of Anti-Modern Art was nothing but a barn with bread and puppet printed art on the walls. The performers stood in front of various banners throughout the museum, chanting the messages on the banners, making their noises with the horns and proto-banjo and drum, while the crowd walked around looking at the banners. I had another encounter with Peter Schumann when we walked towards each other and I did the awkward "which way are we walking so we don't run into each other" shuffle.
+
+If you don't know, Bread and Puppet is a very political art project. I wondered how Peter Schumann paid the performers, do they all split the ticket fees equally, etc?  It renewed my belief in how political art can be effective, after being disillusioned by the inundation of "resistance" in popular media, like reading books with political messages that are products of the mega corporate publishing system. Basically, my conclusion: outsider art is the most effective political art, otherwise you'll be subsumed by the system that you're protesting, in which case, that's not protesting. (That is my opinion right now, subject to change, definitely not the first person with this thought.)
+
+## etc
+I found a way to divide by zero: just make up the result, and then use that logic to create an entirely new logical reasoning for maths. Fuck your math rules, Mr. math teacher! You were just not creative enough to divide by zero!!!
+
+The word "enshittification" is such an awkward word, like some 7th grader came up with a new cuss word. It's describing something important but it's not the right word to describe the phenomenon. Anytime I come across the word, I shudder and don't want to read what the person has to say after that.
+
+My cat Sylvia loves these bands, she always comes to listen whenever i put them on:
+- neil young
+- neil young and crazy horse
+- cindy lee
+- radio dept
+- angel olsen
+- barbara lynn
+- harlem
+- ty segall
+- led zeppelin
+- the who
+- black sabbath
+- brian eno
+- bauhaus
+- wire
+- gang starr
+- brainiac
+- galaxie 500
+- the breeders
+- cleaners from venus
+- blaze foley
+- townes van zandt
+- emmylou harris
+- patsy cline
+- yusef lateef
+- john coltrane
+- nadir bliss / sean o'hara
+- pc worship
+- ex cult
+- gangsta boo
+- tommy wright iii
+- foxes in fiction
+- yohuna
+- alex g
+- coma cinema
+- dirty beaches
+- mac demarco (2 and rock n roll night club)
+- beach fossils
+- diiv
+- real estate
+- broken social scene
+- animal collective
