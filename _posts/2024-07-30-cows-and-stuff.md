@@ -45,7 +45,7 @@ The Museum of Anti-Modern Art was a barn with their art on the walls. The perfor
 If you don't know, Bread and Puppet is a very political art project. I wondered how Peter Schumann paid the performers, do they all split the ticket fees equally, etc?  It renewed my belief in how political art can be effective, after being disillusioned by the inundation of "resistance" in popular media, like reading books with political messages that are products of the mega corporate publishing system. Basically, my conclusion: outsider art is the most effective political art, otherwise you'll be subsumed by the system that you're protesting, in which case, that's not protesting. (That is my opinion right now, subject to change, definitely not the first person with this thought.)
 
 ## etc
-I found a way to divide by zero: just make up the result, and then use that logic to create an entirely new logical reasoning for maths. Fuck your math rules, Mr. math teacher! You were just not creative enough to divide by zero!!!
+I found a way to divide by zero: just make up the result, and then use that logic to create an entirely new logical reasoning for maths. Fuck your math rules, Mr. Math Teacher! You were just not creative enough to divide by zero!!!
 
 The word "enshittification" is such an awkward word, like some 7th grader came up with a new cuss word. It's describing something important but it's not the right word to describe the phenomenon. Anytime I come across the word, I shudder and don't want to read what the person has to say after that.
 
