@@ -26,9 +26,9 @@ The house is in the town of Goshen, Vermont, population 162. Would've been uhhh 
 I would like to live there, surrounded by all of the trees like that, looking at a mountain all the time hearing that brook. The barn would've been a good spot to have writers come stay and work for a couple of weeks, like a fake little writing residency. I ain't go no money tho, and they'd be eating home grown beef from a recently slaughtered 15-20 year old cow alongside butter and cheese from the cow's mother and heirloom green beans.
 
 ## green beans
-My family has an heirloom green bean that we've been growing since the end of the civil war. My ancestor was conscripted to fight in the war and he returned home to a place that was ravaged by Sherman's march. Food was hard to find, but they obtained a bag of field peas. A few green bean seeds were included in the bag. We've been growing them ever since.
+My family has an heirloom green bean that we've been growing since the end of the Civil War. My ancestor was conscripted to fight in the war and he returned home to a place that was ravaged by Sherman's March. Food was hard to find, but they obtained a bag of field peas. A few green bean seeds were included in the bag. We've been growing them ever since.
 
-I don't know if this story is true but I continue the myth. My garden plot was flooded by a historic flood after Hurricane Beryl came all the way from the Gulf of Mexico up into Vermont. A 100 year flood or so (aka 1% chance of happening). It was a devastating flood for a lot of people. It took out all of the beets, greens, broccoli, cauliflower, squash, peppers, some tomatoes, and some herbs. But the family green beans survived.
+I don't know if this story is true but I continue the myth. My garden plot was flooded by a historic flood after Hurricane Beryl came all the way from the Gulf of Mexico up into Vermont. A 100 year flood or so (aka 1% chance of happening). It was a devastating flood for a lot of people. It took out all of our beets, greens, broccoli, cauliflower, squash, peppers, some tomatoes, and some herbs. But the family green beans survived.
 
 
 ## bread and puppet show
