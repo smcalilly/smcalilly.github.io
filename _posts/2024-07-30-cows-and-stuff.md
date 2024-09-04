@@ -15,7 +15,7 @@ Eventually you would have a million cows. You would pay somebody in cows to move
 I don't know about cows anymore.
 
 ## living fantasies
-Just remembered when my neighbors did a big renovation on their house before they listed the house for sell, then somebody bought the house and did another renovation, undoing the original renovation. I sat on my front porch and watched it all. For at least six months they had all sort of workers going in and out, carpenters and painters and plumbers and electricians. And a big dumpster, twice, for both renovations.
+Just remembered when my neighbors did a big renovation on their house before they listed the house for sell, then somebody bought the house and did another renovation, undoing the original renovation. I sat on my front porch and watched it all. For at least eight months they had all sort of workers going in and out, carpenters and painters and plumbers and electricians. And a big dumpster, twice, for both renovations.
 
 Recently I went down a renovation obsession where I didn't do much except scheme about buying this 14 acres with an old farmhouse in the middle of the Green Mountain National Forest in Vermont. Next to a lot of trails and a 2 mile walk to a fishing lake. With an antique dairy barn, has a small brook running through it, southern exposure, half of it was in wetlands with a beaver pond. Most of the property borders National Forest land. It's on a dirt road, but the road is plowed regularly in the winter.
 
