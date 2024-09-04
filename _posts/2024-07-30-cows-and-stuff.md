@@ -15,7 +15,7 @@ Eventually you would have a million cows. You would pay somebody in cows to move
 I don't know about cows anymore.
 
 ## living fantasies
-Just remembered when my neighbors did a big renovation on their house before they listed the house for sell, then somebody bought the house and did another renovation, undoing the original renovation. I sat on my front porch and watched it all. For at least eight months they had all sort of workers going in and out, carpenters and painters and plumbers and electricians. And a big dumpster, twice, for both renovations.
+Just remembered when my neighbors did a big renovation on their house before they listed the house for sell, then somebody bought the house and did another renovation, undoing the original renovation. I sat on my front porch and watched it all. For at least eight months they had all sort of workers going in and out, carpenters and painters and plumbers and electricians. And a big dumpster, twice, for both renovations. The buyers got an incredible deal and I was very jealous ([see "MY BRAIN IS A TEAM OF RIVALS" post about landlords](https://www.sammcalilly.com/writing/2024/02/15/moved-to-vermont.html).)
 
 Recently I went down a renovation obsession where I didn't do much except scheme about buying this 14 acres with an old farmhouse in the middle of the Green Mountain National Forest in Vermont. Next to a lot of trails and a 2 mile bike ride to a fishing lake. With an antique dairy barn, has a small brook running through it, southern exposure, half of it was in wetlands with a beaver pond. Most of the property borders National Forest land. It's on a dirt road, but the road is plowed regularly in the winter.
 
@@ -31,7 +31,7 @@ I would like to live there, surrounded by all of the trees like that, looking at
 ## green beans
 My family has an heirloom green bean that we've been growing since the Civil War. My ancestor was conscripted to fight in the war and he returned home to a place that was ravaged by Sherman's March. Food was hard to find, but they obtained a bag of field peas. A few green bean seeds were included in the bag. We've been growing them ever since.
 
-I don't know if that story is true but I continue the myth. My garden plot was flooded by a historic flood after Hurricane Beryl came all the way from the Gulf of Mexico up into Vermont. A 100 year flood or so (aka 1% chance of happening). It was a devastating flood for a lot of people. It took out all of our beets, greens, broccoli, cauliflower, squash, peppers, some tomatoes, and herbs. But the family green beans survived.
+I don't know if that story is true but I continue the myth. My garden plot was flooded by a historic flood after Hurricane Beryl came from the Gulf of Mexico up into Vermont. A 100 year flood or so (aka 1% chance of happening). It was a devastating flood for a lot of people. It took out our beets, greens, broccoli, cauliflower, squash, peppers, some tomatoes, and herbs. But the family green beans survived.
 
 
 ## bread and puppet theater
