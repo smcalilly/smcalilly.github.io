@@ -11,7 +11,7 @@ I was homesick alone for Thanksgiving and always trying to think up ways to make
 I am basically drop shipping sweet potatoes and I have weird feelings about this. You can see the store here: www.sweetclay.net.
 
 A very funny manifestation of homesickness:
-![[assets/boxes.jpg]]
+![First shipment of Mississippi Sweet Potatoes](/assets/boxes.jpg)
 
 I grew up in Mississippi eating sweet potatoes grown in Vardaman, Mississippi, aka The Sweet Potato Capital of the World. The early farmers named it that and it stuck so nobody else could claim it. A self-invented mythology. The state exports the third largest amount of sweet potatoes in the country. Everybody in Mississippi swears they're the best. I don't know if "The Sweet Potato Capital of the World" has any recognition outside of the south or farming/food people, but I wanted to use that as the basis for my shop.
 
