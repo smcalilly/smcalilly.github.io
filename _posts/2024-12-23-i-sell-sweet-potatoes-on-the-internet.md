@@ -2,7 +2,7 @@
 layout: post
 title:  "I sell sweet potatoes on the internet"
 date:   2024-12-23 00:00:00
-categories: jekyll update
+categories: writing
 published: true
 ---
 
