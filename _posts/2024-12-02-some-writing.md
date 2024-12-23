@@ -2,7 +2,7 @@
 layout: post
 title:  "Some of my published writing"
 date:   2024-12-02 00:00:00
-categories: jekyll update
+categories: writing
 published: true
 ---
 
