@@ -15,7 +15,7 @@ A very funny manifestation of homesickness:
 
 I grew up in Mississippi eating sweet potatoes grown in Vardaman, Mississippi, aka The Sweet Potato Capital of the World. The early farmers named it that and it stuck so nobody else could claim it. A self-invented mythology. The state exports the third largest amount of sweet potatoes in the country. Everybody in Mississippi swears they're the best. I don't know if "The Sweet Potato Capital of the World" has any recognition outside of the south or farming/food people, but I wanted to use that as the basis for my shop.
 
-After storing the sweet potatoes for myself, I realize how this would've been the perfect crop for this area before we had electricity. Sweet potatoes require 55-60 degree with high humidity, and the fall sweet potato harvest would've aligned with the seasons bringing this weather to the area. You also sometimes get a few spells when it's warmer which would've helped cure them.
+After storing the sweet potatoes for myself, I realize how this would've been the perfect crop for this area before we had electricity. Sweet potatoes require 55-60 degree with high humidity, and the fall sweet potato harvest would've happened around the same time that the changing season brings this weather to the area. You also sometimes get a few spells when it's warmer which would've helped cure them.
 
 This is one of the boxes that the farmers use, an image stamped onto my brain after a lifetime of living around it:
 ![Mississippi Sweet Potatoes Farmers box](/assets/farm-boxes.jpg)
@@ -36,7 +36,7 @@ I was wrong!
 
 Before contacting the big sweet potato farmers, I hit up some of the small farmers I know. I emailed Will Reed at Native Son in Tupelo. He was one of the first farmers in Mississippi to start an organic CSA farm and he knows everybody. He didn't have enough crop to supply me, but he told me to call the organic sweet potato farmer Caleb Englert. "He has a good crop," Will said.
 
-I already knew about that farmer. I read about him in a recent issue of the Mississippi Market Bulletin, the monthly newspaper that reports on Mississippi's agriculture economy. They published a front page piece about Mississippi sweet potatoes to align with the fall harvest. He's a major organic grower in Vardaman and the President of the [Mississippi Sweet Potato Council](http://www.mssweetpotato.org/home.html). Based on the article, this farmer seemed like the ideal person to work with.
+I already knew about that farmer. I read about him in a recent issue of the *Mississippi Market Bulletin*, the monthly newspaper that reports on Mississippi's agriculture economy. They published a front page piece about Mississippi sweet potatoes to align with the fall harvest. He's a major organic grower in Vardaman and the President of the [Mississippi Sweet Potato Council](http://www.mssweetpotato.org/home.html). Based on the article, this farmer seemed like the ideal person to work with.
 
 I called him and heard his thick Calhoun County accent that I hadn't heard in probably a year. It took a second for my brain to remember how to understand. I have an accent but it ain't that thick, and it decays each day that I don't live in the south. He interrupted me and was like, "Sorry I's getting in the truck and the bluetooth thang always messes it up." He told me that he could sell me organic Beauregards but didn't have the other varieties that I needed. I told him that I might call him back.
 
