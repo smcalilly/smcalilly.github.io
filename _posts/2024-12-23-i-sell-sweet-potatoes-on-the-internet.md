@@ -7,7 +7,7 @@ published: true
 image: /assets/boxes.jpg
 ---
 
-I was homesick alone for Thanksgiving and always trying to think up ways to make more money. I decided to copy the Vidalia Onions guy by selling Mississippi Sweet Potatoes directly to consumers online. I read his blog post ["I sell onions on the internet"](https://www.deepsouthventures.com/i-sell-onions-on-the-internet/) several years ago and have always wondered if I could do that with Mississippi Sweet Potatoes. So I spent my lonesome holiday creating a website and running a Google Ad campaign to see if there was anybody who wants to [buy sweet potatoes online](https://sweetclay.net). 
+I was homesick alone for Thanksgiving and always trying to think up ways to make more money. I decided to copy the Vidalia Onions guy by selling Mississippi Sweet Potatoes directly to consumers online. I read his blog post ["I sell onions on the internet"](https://www.deepsouthventures.com/i-sell-onions-on-the-internet/) several years ago and have always wondered if I could do that with Mississippi Sweet Potatoes. So I spent my lonesome holiday creating a website and running a Google Ad campaign to see if there was anybody who wants to buy sweet potatoes online. 
 
 I am basically drop shipping sweet potatoes and I have weird feelings about this. You can see the store here: [www.sweetclay.net](https://sweetclay.net).
 
