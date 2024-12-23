@@ -1,12 +1,12 @@
 ---
 layout: post
-title:  "Where you can find some published writing"
+title:  "Some of my published writing"
 date:   2024-12-02 00:00:00
 categories: jekyll update
 published: true
 ---
 
-This is a running list of where you can find my writing. Hopefully this list grows over the next decade:
+This is a running list of where you can find my writing if you are interested. Hopefully this list grows over the next decade:
 - [Two Stories](https://muumuuhouse.com/sa.01nov2022.html) - *Muumuu House* was the first place to ever publish my writing. Thank you Tao.
 - [*Forever Magazine VII: Made in the USA*](https://forever.metalabel.com/america) - My first piece in print, representing Mississippi in *Forever Magazine*'s America issue. Thank you, *Forever*.
 - [Tales from a Southern Undertaker](https://medium.com/@smcalilly/tales-from-a-southern-undertaker-ac16aadd2191) - my profile on MS Representative Steve Holland. He is a friend and a colorful character.
