@@ -15,7 +15,7 @@ A very funny manifestation of homesickness:
 
 I grew up in Mississippi eating sweet potatoes grown in Vardaman, Mississippi, aka The Sweet Potato Capital of the World. The early farmers named it that and it stuck so nobody else could claim it. A self-invented mythology. The state exports the third largest amount of sweet potatoes in the country. Everybody in Mississippi swears they're the best. I don't know if "The Sweet Potato Capital of the World" has any recognition outside of the south or farming/food people, but I wanted to use that as the basis for my shop.
 
-After storing the sweet potatoes for myself, I realize how this would've been the perfect crop for this area before we had electricity. Sweet potatoes require 55-60 degree with high humidity, and the fall sweet potato harvest would've happened around the same time that the changing season brings this weather to the area. You also sometimes get a few spells when it's warmer which would've helped cure them.
+After storing the sweet potatoes for myself, I realize how this would've been the perfect crop for this area before we had electricity. Sweet potatoes require 55-60 degree with high humidity, and the fall sweet potato harvest would've happened around the same time that the changing season brings this weather to the area. Also the season brings the occasional warm spells which would've helped cure them.
 
 This is one of the boxes that the farmers use, an image stamped onto my brain after a lifetime of living around it:
 ![Mississippi Sweet Potatoes Farmers box](/assets/farm-boxes.jpg)
