@@ -6,9 +6,9 @@ categories: jekyll update
 published: true
 ---
 
-I was homesick alone for Thanksgiving and always trying to think up ways to make more money. I decided to copy the Vidalia Onions guy by selling Mississippi Sweet Potatoes directly to consumers online. I read his blog post ["I sell onions on the internet"](https://www.deepsouthventures.com/i-sell-onions-on-the-internet/) several years ago and have always wondered if I could do that with Mississippi Sweet Potatoes. So I spent my lonesome holiday creating a website and running a Google Ad campaign to see if there was anybody who wants to [buy sweet potatoes online](www.sweetclay.net). 
+I was homesick alone for Thanksgiving and always trying to think up ways to make more money. I decided to copy the Vidalia Onions guy by selling Mississippi Sweet Potatoes directly to consumers online. I read his blog post ["I sell onions on the internet"](https://www.deepsouthventures.com/i-sell-onions-on-the-internet/) several years ago and have always wondered if I could do that with Mississippi Sweet Potatoes. So I spent my lonesome holiday creating a website and running a Google Ad campaign to see if there was anybody who wants to [buy sweet potatoes online](https://sweetclay.net). 
 
-I am basically drop shipping sweet potatoes and I have weird feelings about this. You can see the store here: [www.sweetclay.net](www.sweetclay.net).
+I am basically drop shipping sweet potatoes and I have weird feelings about this. You can see the store here: [www.sweetclay.net](https://sweetclay.net).
 
 A very funny manifestation of homesickness:
 ![First shipment of Mississippi Sweet Potatoes](/assets/boxes.jpg)
@@ -24,7 +24,7 @@ This is one of the boxes that the farmers use, an image stamped onto my brain af
 
 Locals say they'll last a long time if you keep the dirt on them.
 
-I created [the e-commerce website on Shopify](www.sweetclay.net). I listed only one product: Organic Beauregard Sweet Potatoes from the Sweet Potato Capital of The World. An e-commerce store with one single product looked sad, so I decided to list more organic varieties. I thought, yeah of course the Sweet Potato Capital of the World will have all of the varieties under the sun, so I listed four different varieties for sale. 
+I created [the e-commerce website on Shopify](https://sweetclay.net). I listed only one product: Organic Beauregard Sweet Potatoes from the Sweet Potato Capital of The World. An e-commerce store with one single product looked sad, so I decided to list more organic varieties. I thought, yeah of course the Sweet Potato Capital of the World will have all of the varieties under the sun, so I listed four different varieties for sale. 
 
 I considered cold calling sweet potato farmers with the idea before ever launching a website, hoping that they would be interested in being the supplier. I wanted to find a farm who would ship them for me because I currently live in Vermont which is very far away from Mississippi. This is the basic arrangement that the Vidalia Onion Guy has for his shop.
 
@@ -58,4 +58,4 @@ I'm curious to know about how significant the "food miles" of this business woul
 
 Part of me wants to roll up to Vermont after Christmas with a trailer full of southern food fares: sweet potatoes, pecans, grits, crystal hot sauce, Leidenheimer poboy bread, satsuma oranges, frozen buttermilk biscuits, etc. Just become the guy in Vermont who imports southern food products. I've noticed the immigrants in Vermont move there and open restaurants. They bring their foodways and make it a part of the community, creating a new foodways in Vermont. (I've also schemed about opening a catfish food truck to sell fried catfish and poboys at the farmers market...but I have too many projects right now.)
 
-If you made it this far, thank you for reading. Use this code: `Ipomoea batatas` for a 15% discount on www.sweetclay.net. I'll have all the varieties in January!
+If you made it this far, thank you for reading. Use this code: `Ipomoea batatas` for a 15% discount on [www.sweetclay.net](https://sweetclay.net). I'll have all the varieties in January!
