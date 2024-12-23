@@ -8,7 +8,7 @@ published: true
 
 I was homesick alone for Thanksgiving and always trying to think up ways to make more money. I decided to copy the Vidalia Onions guy by selling Mississippi Sweet Potatoes directly to consumers online. I read his blog post ["I sell onions on the internet"](https://www.deepsouthventures.com/i-sell-onions-on-the-internet/) several years ago and have always wondered if I could do that with Mississippi Sweet Potatoes. So I spent my lonesome holiday creating a website and running a Google Ad campaign to see if there was anybody who wants to [buy sweet potatoes online](www.sweetclay.net). 
 
-I am basically drop shipping sweet potatoes and I have weird feelings about this. You can see the store here: www.sweetclay.net.
+I am basically drop shipping sweet potatoes and I have weird feelings about this. You can see the store here: [www.sweetclay.net](www.sweetclay.net).
 
 A very funny manifestation of homesickness:
 ![First shipment of Mississippi Sweet Potatoes](/assets/boxes.jpg)
@@ -18,9 +18,9 @@ I grew up in Mississippi eating sweet potatoes grown in Vardaman, Mississippi, a
 After storing the sweet potatoes for myself, I realize how this would've been the perfect crop for this area before we had electricity. Sweet potatoes require 55-60 degree with high humidity, and the fall sweet potato harvest would've aligned with the seasons bringing this weather to the area. You also sometimes get a few spells when it's warmer which would've helped cure them.
 
 This is one of the boxes that the farmers use, an image stamped onto my brain after a lifetime of living around it:
-![[IMG_7773.jpg]]
+![Mississippi Sweet Potatoes Farmers box](/assets/farm-boxes.jpg)
 
-![[IMG_7771.jpg]]
+![Mississippi Sweet Potatoes](/assets/sweetpotatoes.jpg)
 
 Locals say they'll last a long time if you keep the dirt on them.
 
