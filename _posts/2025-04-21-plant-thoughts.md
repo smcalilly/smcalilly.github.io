@@ -8,11 +8,11 @@ published: true
 
 ## Garden observations
 
-I've been questioning the conventional wisdom of crop rotation because you never see that in nature. That is not a thing that happens. Plants move slowly over a long period of time until they find a spot in the soil where they thrive. I don't totally understand it but it has a lot to do with the ecology of the soil. And how much sun and water that part of the soil gets, which would also affect the soil's ecology. So is it the soil or the sunshine or the water?
+I've been questioning the conventional wisdom of crop rotation because you never see that in nature. An annual plant does not trade place with another annual plant, year after year, unless a human did it. Plants move slowly over a long period of time until they find a spot in the soil where they thrive. I don't totally understand it but it has a lot to do with the ecology of the soil. And how much sun and water that part of the soil gets, which would also affect the soil's ecology. So is it the soil or the sunshine or the water?
 
 I don't know, but you don't see crop rotation in that process. You see plant movement, over several years, until the species is happy in a specific spot (This is a very simplified version of a complex process). 
 
-Maybe this is a naive opinion about crop rotation from a gardener who has never grown crops like a farmer, but then I started reading [*JADAM Organic Farming*](https://www.bookfinder.com/isbn/9788989220206/?st=sr&ac=qr&mode=basic&author=&title=&isbn=978-8989220206&lang=en&destination=us&currency=USD&binding=*&keywords=&publisher=&min_year=&max_year=&minprice=&maxprice=) by Youngsang Cho and he also thinks that about crop rotations. Are you familiar with that book? It's about the Korean organic farming methods. It's been on my reading list for a while and I finally started it. Fits my bias for mimicking natural systems.
+Maybe this is a naive thought about crop rotation from a gardener who has never grown crops like a farmer, but then I started reading [*JADAM Organic Farming*](https://www.bookfinder.com/isbn/9788989220206/?st=sr&ac=qr&mode=basic&author=&title=&isbn=978-8989220206&lang=en&destination=us&currency=USD&binding=*&keywords=&publisher=&min_year=&max_year=&minprice=&maxprice=) by Youngsang Cho and he also thinks that about crop rotations. Are you familiar with that book? It's about the Korean organic farming methods. It's been on my reading list for a while and I finally started it. Fits my bias for mimicking natural systems.
 
 The book's intro: 
 
