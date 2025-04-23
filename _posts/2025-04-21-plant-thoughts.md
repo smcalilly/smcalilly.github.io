@@ -41,7 +41,7 @@ Some gardners hate plants, especially plants like mint, but the thing about gard
 
 You would think that all gardeners love plants, but no, especially not the meticulous gardener who loves to plant in their straight planned lines and kill every non-desirable plant in sight. Those sort of gardeners find the messy gardener another sort of non-desirable.
 
-Messy gardeners love to see the life in their plot, including a tolerance for a little bit of planning. They uncover their beds each spring to see which plants volunteered, finding where the different species naturally reproduced and thrive. Hands in the dirt touching every inch of the soil and smelling the microbes then scratching their butt and getting the microbes in their intestines and probably giving themselves worms. But it's whatever, they are enjoying the dirt. The planning planter sees those volunteer plants as "weeds", the enemy that must be stopped.
+Messy gardeners love to see the life in their plot, including a tolerance for a little bit of planning. They uncover their beds each spring to see which plants volunteered, finding where the different species naturally reproduced and thrive. Hands in the dirt touching every inch of the soil and smelling the microbes then scratching their butt and getting the microbes in their intestines and probably giving themselves worms. But it's whatever, they are enjoying the dirt.
 
 This is not a metaphor, btw, just an observation about people and plants. Also my garden neighbors will probably not like my mint strategy.
 
