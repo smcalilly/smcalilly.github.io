@@ -12,6 +12,6 @@ This is a running list of where you can find my writing if you are interested. H
 - [Two Stories](https://muumuuhouse.com/sa.01nov2022.html) - *Muumuu House* was the first place to ever publish my writing. Thank you Tao.
 - [Tales from a Southern Undertaker](https://medium.com/@smcalilly/tales-from-a-southern-undertaker-ac16aadd2191) - my profile on MS Representative Steve Holland. He is a friend and a colorful character.
 
-I have an unpublished novel manuscript. I'm looking for an editor or a publisher who can help me publish it. Email me at smcalilly@gmail.com or if you're interested in reading it.
+I have an unpublished novel manuscript. I'm looking for an editor or a publisher who can help me publish it. Email me at smcalilly@gmail.com if you're interested in reading it.
 
 I'm also working on another novel.
